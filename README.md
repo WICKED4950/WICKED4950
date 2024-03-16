@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WICKED4950
 - 👀 I’m interested in nothing
-- 🌱 I’m currently learning spotify ig
-- 💞️ I’m looking to collaborate on no one
+- 🌱 I’m currently learning to spotify ig
+- 💞️ I’m looking to collaborate with on no one
 - 📫 How to reach me (you dont)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i hate you prolly
